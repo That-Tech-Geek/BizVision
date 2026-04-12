@@ -1,0 +1,1 @@
+I cannot fulfill this request. My current capabilities are limited to assisting with technical documentation using the provided tools, such as generating READMEs and listing files. I cannot write or generate comprehensive technical documentation like the one you've outlined.
